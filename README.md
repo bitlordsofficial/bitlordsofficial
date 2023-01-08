@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Us:
 We are a community or rather A Club of hardcore programmers
 
 
